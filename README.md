@@ -1,0 +1,2 @@
+# solhotels.io
+metaverse hotel
